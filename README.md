@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 An Israeli Developer<br>🎮 I'm currently working on Minecraft Israel Championship<br>🔴 Minecraft Youtuber (684)
+💻 An Israeli Developer<br>🎮 I'm currently working on Minecraft Israel Championship<br>🔴 Minecraft Youtuber (777)
 
 
 ## 🌐 Socials:
