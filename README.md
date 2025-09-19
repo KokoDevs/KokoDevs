@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 An Israeli Developer<br>🎮 I'm currently working on Alert Systems<br>🔴 Minecraft Youtuber (805)<br>👤[My Protfolio](https://kokodevs.me)
+💻 An Israeli Developer<br>🎮 I'm currently working on Alert Systems<br>🔴 Minecraft Youtuber (979)<br>👤[My Protfolio](https://kokodevs.me)
 
 
 ## 🌐 Socials:
